@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @cosmin1818
+- 👀 I’m interested in stuff
+- 🌱 I’m currently learning stuff
